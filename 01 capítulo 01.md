@@ -310,3 +310,7 @@ He aquí la lista de la depravación del ser humano (la que corresponde a la igl
 Para con Dios, el complacer con el pecado es igual a hacer el mismo pecado.
 
 El resultado práctico: el gentil es perdido.
+
+[^1]: Referencia al desglose de este pasaje
+
+[^2]: Referencia al desglose del Ciclo en *La Historia de la Iglesia Neotestamentaria* (Penascola, Florida: Librería Bíblica Bautista, 2020), pág. 40.

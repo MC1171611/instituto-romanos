@@ -1,18 +1,10 @@
-Capítulo 5
+### Capítulo 5
 
-Capítulo 5
+Tiene mucho que decir sobre la muerte, vs. 6, 7, 8, 10, 12, 14, 17, 21; la muerte que da vida a los muertos. Estableciendo doctrina neotestamentaria nueva resulta que no cita a ningún versículo del Antiguo Testamento.
 
-Tiene mucho que decir sobre la muerte, vs. 6, 7, 8, 10, 12, 14, 17, 21;
-la muerte que da vida a los muertos. Estableciendo doctrina
-neotestamentaria nueva resulta que no cita a ningún versículo del
-Antiguo Testamento.
+1 **Justificados pues por la fe, tenemos paz para con Dios por nuestro Señor Jesu Cristo:**
 
-1 **Justificados pues por la fe, tenemos paz para con Dios por nuestro
-Señor Jesu Cristo:**
-
-2 Por el cual también tenemos entrada por la fe en esta gracia, en la
-cual estamos firmes, y nos gloriamos en la esperanza de la gloria de
-Dios.
+2 Por el cual también tenemos entrada por la fe en esta gracia, en la cual estamos firmes, y nos gloriamos en la esperanza de la gloria de Dios.
 
 3 Y no solo esto, mas aun nos gloriamos en las tribulaciones, sabiendo
 que la tribulación obra paciencia;
@@ -77,8 +69,3 @@ abundó, sobreabundó la gracia;
 21 Para que de la manera que el pecado reinó para muerte, así también la
 gracia reine por la justicia para vida eterna, por Jesu Cristo Señor
 nuestro.
-
-[^1]: Referencia al desglose de este pasaje
-
-[^2]: Referencia al desglose del Ciclo en *La Historia de la Iglesia
-    Neotestamentaria*, Librería Bíblica Bautista, Pensacola, FL, 2020.
