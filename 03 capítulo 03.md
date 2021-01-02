@@ -42,9 +42,9 @@ Aquí se nota algunas aplicaciones de estos versículos que son distintas de sus
 
 De aquí sale la enseñanza calvinista de la "depravación total" que ya tocamos en capítulo 1. El espíritu del hombre perdido es muerto, pero su voluntad ("corazón") puede elegir servir a Dios, aunque esté muerto (en el AT). Ahora, es la parte del hombre perdido que puede responder al evangelio.
 
-"No hay justo" habla de la justicia absoluta (49 veces la Biblia habla de "el justo"); Mat. 5:20; 9:13; Juan 9:?; Bajo el AT fue justicia relativa para los Judíos en guardar la ley (Deut. 6:25).
+"No hay justo" habla de la justicia absoluta (49 veces la Biblia habla de "el justo"); Mat. 5:20; 9:13; Juan 9:?; Bajo el AT fue justicia relativa para los Judíos en guardar la ley (Deuteronomio 6:25).
 
-"No hay quien entienda" 1:28; 1 Cor 2:14
+"No hay quien entienda" 1:28; 1 Corintios 2:14
 
 "No hay quien busque a Dios" en la manera correcta, al Dios verdadero. Buscan a "Diosito" conforme a su propia idea, no reconocen la razón verdadera por el evangelio.
 
@@ -85,7 +85,7 @@ Es lo que hace la ley: da conocimiento del pecado; Rom. 7:7
 
 "Empero" aparece con la marca de párrafo, adverbio adversativo; indica un salto dispensacional.
 
-"La fe de Jesu Cristo" es la fidelidad del SEÑOR en Su vida como hombre; 1 Tim. 2:3, 5-6? (Precio del rescate), *no* es la fe de los que creen en Él que salva (1:5?). Gál 2:20; Heb 2:12; Rom 10:1-4, la justicia del hombre no vale, es la de Dios; Is. 51:1, 5-6, lo que el hombre necesita; Deu. 33:21; Miqueas 6:5 (Núm 23:21, impartió Su justicia); Actos 13:38-39
+"La fe de Jesu Cristo" es la fidelidad del SEÑOR en Su vida como hombre; 1 Tim. 2:3, 5-6? (Precio del rescate), *no* es la fe de los que creen en Él que salva (1:5?). Gálatas 2:20; Hebreos 2:12; Rom 10:1-4, la justicia del hombre no vale, es la de Dios; Is. 51:1, 5-6, lo que el hombre necesita; Deuteronomio 33:21; Miqueas 6:5 (Números 23:21, impartió Su justicia); Actos 13:38-39
 
 23 **Por cuanto todos pecaron, y están destituidos de la gloria de Dios.**
 
@@ -97,31 +97,31 @@ Todos son igualmente condenados (v. 9, 19). Rom 5:12; Ec. 7:20; 1 Jn 1:8, 10
 
 "Gratuitamente" es lo que necesita un pecador "destituido", *gratis*. Ef. 2:8-9; Rom 5:9, 15-17, un "don" no se puede comprar.
 
-"Redención" de algo perdido; Ef 1:7; Col 1:14; Heb 9:12; Act. 20:28, requirió la sangre de *Dios*; 1 Tim. 2:6; Mat. 20:28; 1 Ped 1:18-19 (sangre del Padre/Adam ?).
+"Redención" de algo perdido; Ef 1:7; Col 1:14; Hebreos 9:12; Act. 20:28, requirió la sangre de *Dios*; 1 Tim. 2:6; Mat. 20:28; 1 Pedro 1:18-19 (sangre del Padre/Adam ?).
 
 25 **Al cual Dios ha propuesto por aplacamiento por la fe en su sangre, para manifestación de su justicia por la remisión de los pecados pasados, en la paciencia de Dios;**
 
-"Dios ha propuesto" tanto la Ley a condenación como a Jesús como redención; Col 1:19-20; 2 Cor 5:18-19, 21, no hay opciones;
+"Dios ha propuesto" tanto la Ley a condenación como a Jesús como redención; Col 1:19-20; 2 Corintios 5:18-19, 21, no hay opciones;
 
 "Aplacamiento" es acción y afecto de aplacar, mitigar; propiciación (1 Juan 2:2; 4:10); acción agradable a Dios, que le mueve a misericordia; sangre bajo la Ley, pago o la concesión para mitigar la enemistad para con Dios. (Col. 1:14?; Ef. 2:2; Rom 5:21)
 
-"Fe en su sangre" la fe del hombre *en* ("adentro de") Cristo, y la fe de Cristo le salva al hombre creyente. No había sangre perfecta para quitar pecado; salvación futura esperaba esa sangre: Éx 34:7; Heb 10:4, 5-14?; Cristo lo hizo. Redimir/remitir son cosas distintas; Cristo hizo *ambas* (Act 17:30-31).
+"Fe en su sangre" la fe del hombre *en* ("adentro de") Cristo, y la fe de Cristo le salva al hombre creyente. No había sangre perfecta para quitar pecado; salvación futura esperaba esa sangre: Éx 34:7; Hebreos 10:4, 5-14?; Cristo lo hizo. Redimir/remitir son cosas distintas; Cristo hizo *ambas* (Act 17:30-31).
 
 26 **Para manifestación de su justicia en este tiempo; para que él sea justo, y justificador del que cree en Jesús.**
 
 1 Tim 3:16 es la manifestación
 
-"Para que él sea justo" Siendo Dios justo, tuvo que manifestar Su justicia, y ahora puede dar Su justicia al hombre pecador por medio del SEÑOR Jesu Cristo, la justicia de Dios personificada. 1 Cor 1:30; Heb 2:14-17; justo Dios tanto a Israel; no fue manifestado en los siglos antes, solamente cuando vino (Juan 1:14-16). Salmo 85:10
+"Para que él sea justo" Siendo Dios justo, tuvo que manifestar Su justicia, y ahora puede dar Su justicia al hombre pecador por medio del SEÑOR Jesu Cristo, la justicia de Dios personificada. 1 Corintios 1:30; Hebreos 2:14-17; justo Dios tanto a Israel; no fue manifestado en los siglos antes, solamente cuando vino (Juan 1:14-16). Salmo 85:10
 
 27 **¿Dónde, pues, *está* la jactancia? Es echada fuera. ¿Por cuál ley? ¿De las obras? No: sino por la ley de la fe.**
 28 **Así que, concluimos ser el hombre justificado por fe sin las obras de la ley.**
 
-1 Cor 1:29, 31; Ef. 2:8-9
+1 Corintios 1:29, 31; Efesios 2:8-9
 
 29 **¿Es Dios solamente *Dios* de los Judíos? ¿No es también *Dios* de los Gentiles? Cierto, *él es* también *Dios* de los Gentiles.**
 30 **Porque un Dios *es de todos*, el cual justificará de la fe la circuncisión, y por la fe a la incircuncisión.**
 
-Ahora todos entran por la misma puerta: Gál 2:16; 3:28
+Ahora todos entran por la misma puerta: Gálatas 2:16; 3:28
 
 31 **¿Luego deshacemos la ley por la fe? En ninguna manera: antes establecemos la ley.**
 
