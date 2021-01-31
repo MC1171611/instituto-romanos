@@ -51,7 +51,7 @@ Amor - 1 Juan 4:10; solamente proviene de Él; hasta allí somos enemigos de Dio
 
 >9 **Luego mucho más, ahora justificados en su sangre, por él seremos salvos de la ira.** {#chapter05verse09}
 
-Aquí empieza con **"mucho más"** (v. 15, 17; considerado v. 1; 3:21; Efesios 2:13; 1 Juan 1:7). El medio para esta justificación es la sangre de Cristo: Hebreos 9:14, el único medio de justificación.
+Aquí empieza con **"mucho más"** (v. 9, 10, 15, 17; considerado v. 1; 3:21; Efesios 2:13; 1 Juan 1:7). El medio para esta justificación es la sangre de Cristo: Hebreos 9:14, el único medio de justificación.
 
 Siendo hijos de Dios, podemos ser **"salvos de la ira"** como dice en 1 Tesalonicenses 1:10; 5:10; habla por un lado de "la tribulación" pero también habla de la muerte en el lago de fuego. Esta referencia habla de los dos tipos de ira. Nótese el tiempo del verbo: **"seremos"** es futuro; esto trata de la redención del cuerpo (**"adopción"**) en el arrebatamiento.
 
@@ -60,8 +60,8 @@ Siendo hijos de Dios, podemos ser **"salvos de la ira"** como dice en 1 Tesaloni
 Este es uno de los versículos claves que demuestra la salvación en sus tres fases o tiempos, indicados por los tiempos de los verbos. Nótese:
 
 1. **fuimos reconciliados** - <span style="color:red">pasado</span> - Tito 2:11; 1 Tesalonicenses 1:9a, 10b; la salvación espiritual hecha por Dios.
-2. ***ya*** **reconciliados** - <span style="color:green">presente</span> - Tito 2:12; 1 Tesalonicenses 1:9b; Filipenses 2:12; la salvación (salud) almática, el *andar* con Dios que le toca al salvo.
-3. **seremos salvos** - <span style="color:blue">futuro</span> - Tito 2:13; 1 Tesalonicenses 1:10b; 1 Pedro 1:5, 9; la redención futura del cuerpo en el arrebatamiento.
+2. ***ya*** **reconciliados** - <span style="color:green">presente</span> - Tito 2:12; 1 Tesalonicenses 1:9b; Filipenses 2:12; 1 Pedro 1:9; la salvación (salud) almática, el *andar* con Dios que le toca al salvo.
+3. **seremos salvos** - <span style="color:blue">futuro</span> - Tito 2:13; 1 Tesalonicenses 1:10b; 1 Pedro 1:5; la redención futura del cuerpo en el arrebatamiento.
 
 Para Dios ya es hecho, pues Él no se encuentra detenido en el tiempo o restringido por el espacio. Nosotros, no obstante, tenemos que pensar de estas tres cosas como un procedimiento que se extiende desde el momento de la salvación hasta el arrebatamiento. Para nosotros es la esperanza que nos motiva a seguir viviendo para Él en este mundo: la certeza absoluta que viene, aunque tenemos que quedarnos tranquilos en obediencia mientras esperamos Su venida.
 
@@ -69,11 +69,11 @@ Aquí habla de que éramos **"enemigos"** de Dios (v. 8). El pecado nos hace ene
 
 >11 **Y no solo esto, mas aun nos gloriamos en Dios por nuestro Señor Jesu Cristo, por el cual hemos ahora recibido la reconciliación.** {#chapter05verse11}
 
-Ahora nos encontramos en el colmo de esta relación reconciliadora: **"gloriamos en Dios"** como el resultado máximo de nuestra salvación en en *andar* práctico con Dios (1 Corintios 1:30-31; 1 Pedro 2:9; Filipenses 3:3; Jeremías 9:23-24). Esta **"reconciliación"** nos ha hecho amigos con Dios mientras éramos Sus enemigos.
+Ahora nos encontramos en el colmo de esta relación reconciliadora: **"gloriamos en Dios"** como el resultado máximo de nuestra salvación en el *andar* práctico con Dios (1 Corintios 1:30-31; 1 Pedro 2:9; Filipenses 3:3; Jeremías 9:23-24). Esta **"reconciliación"** nos ha hecho amigos con Dios mientras éramos Sus enemigos.
 
 >12 **¶ Por tanto, de la manera que el pecado entró en el mundo por un hombre, y por el pecado la muerte; y la muerte así pasó a todos los hombres porque todos pecaron;** {#chapter05verse12}
 
-Es importante entender que **"la muerte"** tiene tres aspectos como muchas otras cosas en la Biblia. No siempre se trata de la muerte física; tampoco siempre es espiritual, como no siempre es almática. La primera muerte que ocurrió en la Tierra (Génesis 3) era espiritual, y la muerte física no ocurrió hasta capítulo 4 (Abel) y 5 (Adam). También véase Romanos 4:19 y el desglose de Sara allí.
+Es importante entender que **"la muerte"** tiene tres aspectos como muchas otras cosas en la Biblia. No siempre se trata de la muerte física; tampoco siempre es espiritual, como no siempre es almática. La primera muerte que ocurrió en la Tierra (Génesis 3) era espiritual, y la muerte física no ocurrió hasta capítulo 4 (Abel) y 5 (Adam). También véase Romanos 4:19 y el desglose de Abraham y Sara allí.
 
 - Naturaleza física de Adam - muere al final de su vida
 - Naturaleza almática de Adam - peca y nos aparta de Dios en la vida (progresiva)
@@ -94,7 +94,7 @@ La muerte física **"reinó"** desde Adam hasta Moisés aunque ellos pecaron de 
 
 Cuando dice **"el cual es figura del que había de venir"** nos habla de los dos hombres: Adam y Jesús, el primer Adam y el segundo Adam. Uno es "**en Adam**" o ""**en Cristo**", no hay otra opción (1 Corintios 15:22).
 
-Ahora el alcance *espiritual* de esta verdad absoluta *física* es que el pecador, sujeto a la muerte física, también está muerto espiritualmente en sus pecados. Según Romanos 7:9-11 y Efesios 2:1, el pecador está muerto *en sus pecados* y también entendemos que el perdido muerto se identifica con sus pecados (1 Corintios 6:9-11); no es que se emborracha, si no es borracho; no es que hurta: es ladrón. Al ser resucitado con Cristo, uno pierde esa distinción y no más se identifica como su pecado, y el pecado pasa a ser algo externo al individuo (Gálatas 5:19-21) ya que ahora no más está ligado a su cuerpo pecaminoso (Romanos 7:24). El pecado perjudica su galardón y herencia pero no puede tocar la salvación que pertenece al espíritu y no el cuerpo y alma (Romanos 8:2, 10). Refiere al versículo 10 para un desglose de esta salvación en tres partes.
+Ahora el alcance *espiritual* de esta verdad absoluta *física* es que el pecador, sujeto a la muerte física, también está muerto espiritualmente en sus pecados. Según Romanos 7:9-11 y Efesios 2:1, el pecador está muerto *en sus pecados* y también entendemos que el perdido muerto se identifica con sus pecados (1 Corintios 6:9-11); no es que se emborracha, si no es borracho; no es que hurta: es ladrón. Al ser resucitado con Cristo, uno pierde esa distinción y no más se identifica como su pecado, y el pecado pasa a ser algo externo al individuo (Gálatas 5:19-21) ya que ahora no más está ligado a su cuerpo pecaminoso (Romanos 7:24). El pecado perjudica su galardón y herencia pero no puede tocar la salvación que pertenece al espíritu y no el cuerpo y alma (Romanos 8:2, 10). Refiere al versículo 10 para un desglose de esta salvación en tres partes. ( Pedro 2:11)
 
 >15 **Mas no como el delito, así también *fue* el don gratuito; porque si por el delito de uno murieron muchos, mucho más la gracia de Dios, y el don por la gracia *que es* de un *solo* hombre, Jesu Cristo, abundó para muchos.** {#chapter05verse15}
 16 **Ni tampoco de la manera que *fue* por uno que pecó, *así también* el don; porque el juicio a la verdad *fue* de un *pecado* para condenación, mas el don gratuito *es* de muchos delitos para justificación.** {#chapter05verse16}
