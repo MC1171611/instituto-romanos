@@ -12,7 +12,7 @@ Ministerios Valera 1865 - Chile
 Federico García Lorca 2544
 Osorno, Chile
 
-https://ww.valera1865.org
+https://www.valera1865.org
 
 Este volumen se dedica al Único que merece cualquier reconocimiento, el Redentor, el Justificador, el Santificador, el SEÑOR Jesu Cristo, el verdadero Autor del Libro.
 
