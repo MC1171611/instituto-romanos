@@ -2,7 +2,7 @@
 
 El primer capítulo del libro nos presenta con mucho que decir. Siendo el primer libro eclesiástico/paulino, requiere repasar en detalle algunas realidades fundamentales. También introduce el lector de la Biblia con la manera de Pablo en plantar sus "argumentos", como dicen muchos teólogos (como si Pablo fuera simplemente algún teólogo o abogado como ellos). Nuestro bosquejo al principio indica que este capítulo trata de "el Gentil perdido", y se verá por qué es así.
 
-Romanos 1:1 **Pablo, siervo de Jesu Cristo, llamado a *ser* apóstol, apartado para el evangelio de Dios,**
+>1 **Pablo, siervo de Jesu Cristo, llamado a *ser* apóstol, apartado para el evangelio de Dios,** {#chapter01verse01}
 
 **"Pablo"** es la primera palabra de cada epístola eclesiástica, todas escritas por Pablo. No puede enfatizar demasiado: [Pablo es la portavoz de Dios a la Iglesia]{.ul}. Todas las doctrinas fundamentales para la edad de la iglesia o se revelan por parte de los escritos de Pablo, o se entienden a base de lo que escribió. Esta palabra señala qué le aplica a la iglesia de forma solida y confiable.
 
@@ -18,9 +18,9 @@ Como **siervo** Pablo entendía que era **"comprado por precio"** (1 Corintios 6
 
 El evangelio y su composición se tratará en versículo 16.
 
-Romanos 1:2 **Que él había antes prometido, por sus profetas en las Santas Escrituras,
+>2 **Que él había antes prometido, por sus profetas en las Santas Escrituras, {#chapter01verse02}
 3 De su Hijo Jesu Cristo, Señor nuestro, (el cual fue hecho de la
-simiente de David según la carne,**
+simiente de David según la carne,** {#chapter01verse03}
 
 **"Que él había antes prometido, por sus profetas en las Santas Escrituras..."** la revelación de las Escrituras se centra el la Persona del SEÑOR Jesu Cristo. De hecho, toda la Escritura es un testimonio de Él (Lucas 24:27; Juan 20:31). Ahora que tenemos la revelación completa de la realidad de quién realmente es el SEÑOR, es fácil olvidar que en el tiempo en que se escribía el Nuevo Testamento, los creyentes solamente tenían el Antiguo Testamento. Pues, para entender mejor lo que iba siendo revelado, Pablo les enseñaba que el misterio del SEÑOR ya fue profetizado en el Antiguo Testamento por los profetas. Sea Génesis 3:15, o 22:8, o 49:10, o Salmo 22, o Isaías 53, o los miles de profecías que hablan de lo que entendemos como la "Segunda Venida" del SEÑOR, toda la Biblia da testimonio de Él.
 
@@ -30,7 +30,7 @@ También en el tema del evangelio, es importante entender que mientras todo el t
 
 **"(el cual fue hecho de la simiente de David según la carne"** Aquí se encuentra el tema del SEÑOR "hecho" (Juan 1:14; Hebreos 10:5; Gálatas 4:4; etc.). Es muy importante que no dice "nacido" (aunque también nació) porque Su naturaleza *humana* fue "hecha" de una manera única. Se profundiza más en Juan 1.
 
-4 **Y fue declarado *ser* el Hijo de Dios con poder, según el Espíritu de santidad, por la resurrección de los muertos;)**
+>4 **Y fue declarado *ser* el Hijo de Dios con poder, según el Espíritu de santidad, por la resurrección de los muertos;)** {#chapter01verse04}
 
 **"declarado ser el Hijo de Dios"** El enfoque siempre es el SEÑOR Jesu Cristo mismo, a base de los próximos versículos. Obviamente el evangelio es las buenas nuevas de Él, pues son la misma cosa, o mejor dicho, dos aspectos del mismo tema. Jesu Cristo fue "hecho" en hombre (Juan 1:14; Gálatas 4:4; 1 Corintios 1:30; 15:20; 2 Corintios 5:21; Hebreos 6:20; 7:22, 26) pero fue **"declarado"** de una forma eterna. Lucas 3:23-31 es el registro de la generación de María, el linaje *físico* del SEÑOR Jesu Cristo (ref: Proverbios 30:4; Miquéas 5:2; etc.).
 
@@ -44,7 +44,7 @@ Es verdad que la *vida física* del SEÑOR Jesu Cristo fue conectado con David, 
 
 Mientras muchos hoy en día rechazan la resurrección del SEÑOR Jesu Cristo como mitología, y otros la defiendan con una postura apologética (citando la evidencia, los seguidores de Jesús, y los escritos que apoyan a Su resurrección sin oposición en el primer siglo), la postura bíblica es la de fe, creyendo el testimonio de la Biblia como absoluto, sin apoyarnos en argumentos humanistas o "científicas" para que parezcamos más cultos en los ojos del mundo. Según **Actos 1:3**, las pruebas de la resurrección del SEÑOR Jesu Cristo son **"infalibles"** (nótese que la RVG y "1602P" rezan con la 1909 y la 1960 aquí, diciendo "pruebas indubitables"). El testimonio bíblico es seguro y confiable, con o sin evidencias externas o que apoyan nuestra confianza en las Escrituras.
 
-5 **Por el cual recibimos la gracia y el apostolado, para *hacer* que se obedezca a la fe en todas las naciones, en su nombre:**
+>5 **Por el cual recibimos la gracia y el apostolado, para *hacer* que se obedezca a la fe en todas las naciones, en su nombre:** {#chapter01verse05}
 
 **"Por el cual"** se refiere a versículo 3, donde empezó la declaración en paréntesis: **"Jesu Cristo, Señor nuestro"**. Es importante no perderse en la gramática del idioma y siempre revisar los antecedentes para que entendamos bien el sentido del lenguaje usado. También se nota que la frase en paréntesis empezó también con **"el cual"**, y por lo tanto podemos estar seguros que el sujeto sigue siendo el SEÑOR (como siempre debe ser).
 
@@ -60,11 +60,11 @@ Nótese la importancia que se pone en el *nombre* del SEÑOR Jesu Cristo (y es s
 
 **"en todas las naciones"** Otra vez volvemos al tema del Gentil con Pablo. No se puede olvidar lo chocante que era para un Judío en ese entonces tener parte con los Gentiles, especialmente para un Fariseo con el currículo de Pablo (Filipenses 3:4-6). Se entiende (hablando humanamente, Romanos 6:19) como Pedro disimulaba en este tema, especialmente considerando su apostolado específico para con los Judíos (Gálatas 2:11-14). Las repetidas veces que Pablo enfatiza su llamado especial para ir a los Gentiles es llamativo, pero ayuda a entender el entorno religioso del primer siglo, incluso en la misma iglesia. Era necesario repetir el hecho de que ahora Dios los mandó a todas **"las naciones"** y no solo a los Judíos esparcidos (Actos 1-7). Versículo **1** tiene más comentario en cuanto a los Gentiles.
 
-Romanos 1:6 **(Entre las cuales sois también vosotros los llamados de Jesu Cristo:)**
+>6 **(Entre las cuales sois también vosotros los llamados de Jesu Cristo:)** {#chapter01verse06}
 
 Esto se refiere a **"las naciones"** del versículo anterior. Los de Roma eran *Gentiles*, no Judíos (otra prueba de que Pedro *no fue a Roma*). Nótese también que el "llamado" tiene que ver con *el evangelio*, no con ninguna "elección particular" "antes de la fundación de la tierra", etc. Como ya decimos, la *elección* tiene que ver con la posición del individuo, *en Cristo*. Si quieres ser elegido, tienes que ser "en Cristo".
 
-Romanos 1:7 **A todos los que estáis en Roma, amados de Dios, llamados a *ser* santos: Gracia a vosotros y paz de Dios nuestro Padre, y del Señor Jesu Cristo.**
+>7 **A todos los que estáis en Roma, amados de Dios, llamados a *ser* santos: Gracia a vosotros y paz de Dios nuestro Padre, y del Señor Jesu Cristo.** {#chapter01verse07}
 
 Obviamente la epístola se dirigía a los salvos en Roma. Ahora, se debe entender que el término "iglesia" en la Biblia (aunque no aparece en este versículo, es importante señalar) se refiere en la mayoría de las veces a una asamblea local, pero no siempre se reunían juntos en el mismo lugar. Para entender el significado de esto, es necesario acordarse de que se salvaron más que 5.000 personas el día de Pentecostés, y se reunían **"en las casas"** (Actos 2:46), pero se llamaba "la iglesia" (vs. 41, 47), sin distinción. No todos cabían en una sola casa, sin duda. En la Biblia, todas las iglesias se reunían en casas particulares, *no* en edificios especiales con letreros y personalidad jurídica otorgada por el Estado con cuentas bancarias, tesoreros y una junta directiva por detrás. Eran un *cuerpo* espiritual, un organismo *vivo* que fue dirigido por el Espíritu Santo a través de los ancianos (todos los hombres doctos en la congregación). El tema de la *ecclesiología* requiere mucha atención, pero basta decir en este contexto que pude que habían muchas congregaciones pequeñas en Roma (o en Corinto, o en Éfeso, o dondequiera) pero Pablo les escribió como "la iglesia que está en" tal lugar. Aveces utiliza el plural, "las iglesias", pero eso tiene que ver más con procedimiento y no de doctrina o cómo Dios las ve. Hay *una sola iglesia de Dios*, y es el cuerpo de Cristo y habitación de Dios por el Espíritu. No importa si es esparcida o se reúne en distintos lugares, es una sola.
 
@@ -74,7 +74,7 @@ Obviamente la epístola se dirigía a los salvos en Roma. Ahora, se debe entende
 
 **"Gracia a vosotros y paz de Dios nuestro Padre, y del Señor Jesu Cristo."** Aunque sea un saludo normal y típico, Pablo nunca pierda una oportunidad para alabar a Dios y al SEÑOR Jesu Cristo. Así deberíamos ser nosotros *siempre*. Es parte de nuestro trabajo el levantarle a Cristo para que Él atraiga a sí a todos los hombres para que puedan ser salvos.
 
-Romanos 1:8 **Primeramente, doy gracias a mi Dios por Jesu Cristo acerca de todos vosotros, de que se habla de vuestra fe por todo el mundo.**
+>8 **Primeramente, doy gracias a mi Dios por Jesu Cristo acerca de todos vosotros, de que se habla de vuestra fe por todo el mundo.** {#chapter01verse08}
 
 **"Primeramente, doy gracias a mi Dios por Jesu Cristo acerca de todos vosotros"** Lo primero es siempre dar gracias, sea en alabarle al SEÑOR o en oración (Filipenses 4:6; 1 Tesalonicenses 5:18; etc.). Es frecuentemente la apertura de las epístolas de Pablo (1 Corintios 1:4; Filipenses 1:3; Colosenses 1:3; 1 Tesalonicenses 1:2; 2 Tesalonicenses 1:3; 2 Timoteo 1:3; Filemón 1:4). Nótese que da gracias a Dios por los hermanos. No siempre es fácil agradecerle a Dios por los hermanos, ya que aveces son difíciles de aguantar, sin embargo son nuestros hermanos y miembros del mismo cuerpo, colaboradores en la edificación de este edificio. Pues, debemos de amarlos, ayudarlos, exhortarlos, y animarlos a buenas obras para proseguir la obra del edificio.
 
@@ -82,7 +82,7 @@ Romanos 1:8 **Primeramente, doy gracias a mi Dios por Jesu Cristo acerca de todo
 
 Aquí la frase **"por todo el mundo"** significa "todo sin distinción", no "todo sin excepción", pues nadie había cruzado el océano Atlántico para predicarles a los Indios (a pesar de la estupidez Mormona acerca de ese tema). Como el centro del mundo conocido en ese entonces, regido por el imperio romano, todo el mundo "civilizado" había escuchado de los Cristianos en Roma y su fidelidad a las Escrituras. Incluso algunos de la casa del emperador mismo se habían salvado, o por el testimonio de la iglesia o por el testimonio de Pablo (Filipenses 4:22). Aveces la palabra "todo(s)" significa a *todos sin excepción*, como vimos con la expiación de Cristo (1 Juan 2:2; 1 Timoteo 2:5-6). Otras veces es "sin distinción", sin hacer una diferencia entre unos y otros (Efesios 6:21). Se entiende por el contexto del pasaje.
 
-Romanos 1:9 **Porque testigo me es Dios, al cual sirvo en mi espíritu en el evangelio de su Hijo, que sin cesar me acuerdo de vosotros siempre en mis oraciones;**
+>9 **Porque testigo me es Dios, al cual sirvo en mi espíritu en el evangelio de su Hijo, que sin cesar me acuerdo de vosotros siempre en mis oraciones;** {#chapter01verse09}
 
 **"sirvo en mi espíritu"** Se nota que el "espíritu" aquí tiene la "e" minúscula, pues no es el Espíritu Santo sino el espíritu del hombre, el cual le da la conexión a Dios. Al ser salvo, el espíritu muerto del hombre es vivificado (1 Corintios 15:45) por el Espíritu Santo y ahora el hombre puede tener comunión con Dios. El hombre natural, muerto espiritualmente, no puede tener esa conexión con Dios. Ser vivificado por el Espíritu Santo nos habilita para servir a Dios.
 
@@ -92,13 +92,13 @@ La diferencia entre los creyentes de la Edad de la Iglesia y los del Antiguo Tes
 
 **"que sin cesar me acuerdo de vosotros siempre en mis oraciones"** Otra vez aparece el tema del "todo sin distinción", ya que no pasó los 24 horas de cada día orando solamente para los hermanos en Roma. **"Orád sin cesar"** (1 Tesalonicenses 5:17) obviamente habla de una actitud de oración continua, no que debemos de siempre estar arrodillados 24/7.
 
-Romanos 1:10 **Rogando, si de algún modo ahora al fin haya de tener por la voluntad de Dios próspero viaje para venir a vosotros.**
+>10 **Rogando, si de algún modo ahora al fin haya de tener por la voluntad de Dios próspero viaje para venir a vosotros.** {#chapter01verse10}
 
 El hecho de que no era todavía la voluntad de Dios que Pablo viajara a Roma no le impedía que lo pidiese. Aveces Dios responde "ahora no" o "espera" (y aveces no responde nada), y mientras oramos según Su voluntad, debemos de seguir orando (véase la precaución de Santiago 4:2-3; Dios sí mira a los intentos del corazón, Hebreos 4:12).
 
 Pablo oraba según la voluntad de Dios en este tema, ya que era la voluntad de Dios que Pablo predicara en Roma (Actos 19:21; 23:11; 27:24) pero fue a Jerusalém contra la voluntad de Dios (Actos 20:22-23; 21:4, 10-12). Pues, perdió la parte del **"próspero viaje"** por su *desobediencia*. En vez de ir en la manera que Dios quisiera, se fue encadenado entre soldados Romanos con naufragio, después de perder dos años de su vida y ministerio en Judea (véase comentarios sobre el libro de Actos). Pues, nuestra obediencia a la voluntad de Dios determina *cómo* nos responde a la oración.
 
-Romanos 1:11 **Porque deseo en gran manera veros, para repartir con vosotros algún don espiritual, a fin de que seáis confirmados;**
+>11 **Porque deseo en gran manera veros, para repartir con vosotros algún don espiritual, a fin de que seáis confirmados;** {#chapter01verse11}
 
 **"deseo en gran manera veros"** Como cualquier ministro de Dios, Pablo anhelaba servirles a los Romanos por repartir a ellos algo que les ayudaría en su servicio para el cuerpo (**12:3-21**). Como dijo a los Corintios, quienes eran nada más que un problem continuo, **"Yo empero de bonísima gana gastaré y seré gastado por vuestras almas"** (2 Corintios 12:15), el deseo verdadero de un siervo de Dios. Un ministro verdadero no es uno que lleva corbata, recibe un sueldo, y tiene buena pinta para pararse en el púlpito de vez en cuando para dar una charla motivacional --- ese se llama un *asalariado* (Juan 10:12-13). Un ministro de Dios es uno que esté dispuesto a amar sin ser amado, dar sin que le den nada, sufrir sin refrigerio, llorar sin que alguien le acompañe y sacrificarse por amor a los demás, sin que alguien se de cuenta. Pablo es el segundo más grande ejemplo de tal ministro en la Biblia, segundo solamente al SEÑOR mismo.
 
@@ -110,13 +110,13 @@ Ahora, los carismáticos han hecho trizas del concepto bíblico de "dones" espir
 
 La confirmación espiritual se base en el conocimiento de Dios y de la Biblia y por consecuente la *sana doctrina* (el conjunto de creencias y el andar consecuente). Pues, resulta en un creyente arraigado y afirmado en la fe (Efesios 3:17 dice en *amor*, la prueba/acción externa de la fe). Un creyente que carece de confirmación bíblica puede ser llevado a doquier por cualquier viento de doctrina y error (Efesios 4:14; Hebreos 13:9; Júdas 1:12). La cita de Hebreos nos muestra que no es necesariamente una doctrina *errada* que nos puede llevar fuera del camino, porque es necesario que seamos **"afirmados"** por la gracia, para *andar* en gracia. Uno de los errores más grandes de los Creyentes de la Biblia ha sido reemplazar el *andar* por la *doctrina* y creer que uno puede tener la una sin el *otro*. *No se puede hacer y glorificar a Dios*. Resulta otro sistema de enseñanzas de hombres sin la dirección nifruto del Espíritu Santo.
 
-Romanos 1:12 **Es a saber, para ser juntamente consolado con vosotros por la mutua fe, la vuestra y juntamente la mía.**
+>12 **Es a saber, para ser juntamente consolado con vosotros por la mutua fe, la vuestra y juntamente la mía.** {#chapter01verse12}
 
 La Biblia nos indica que la consolación es un beneficio para otros, no para nuestro beneficio. Como un niño se cría pensando que todos los regaliltos son para él, pero al hacerse hombre reconoce que ahora su trabajo y producción ayuda a otros también y no él no puede ser el único beneficiario de su trabajo, así es en la vida de un salvo. Al madurarse, se da cuenta que su ahora es su responsabilidad considerar el bienestar *espiritual* de otros y no solamente enfocarse en su necesidad. Desgraciadamente hay muchos salvos (profesos, por lo menos) que nunca alcanzan un nivel de madurez para reconocer eso, y siguen cada semana esperando que el pastor les alimente, mientras ya es tiempo que ellos ayudan y alimentan a otros ([consolación]{.ul}: 2 Corintios 1:2-7; 7:6-7, 13; [la madurez espiritual]{.ul}: 1 Corintios 13:11; Hebreos5:11-14).
 
 ([mutua/común fe]{.ul}: Tito 1:4; Judas 3)
 
-Romanos 1:13 **Mas no quiero, hermanos, que ignoréis, que muchas veces me he propuesto de venir a vosotros, (empero hasta ahora he sido estorbado,) para tener también entre vosotros algún fruto, como entre los otros Gentiles.**
+>13 **Mas no quiero, hermanos, que ignoréis, que muchas veces me he propuesto de venir a vosotros, (empero hasta ahora he sido estorbado,) para tener también entre vosotros algún fruto, como entre los otros Gentiles.** {#chapter01verse13}
 
 Como ya se comentó, Pablo no había visitado a Roma durante su ministerio. No los conoció todavía, aunque les escribió una epístola. Como parte de su ministerio especial para los Gentiles, *tenía el privilegio de escribir Escritura bajo la dirección del Espíritu Santo.* Como una nota práctica, esto nos indica que en el cuerpo de Cristo, no necesariamente tiene que ser el ministro que empezó una obra que sea usado por Dios para hablarles a los creyentes en un tal lugar. En el "Cristianismo" así llamado, existen algunos profesionales que andan buscando oportunidades de pararse en los púlpitos de iglesias ajenas para que le paguen; ellos han robado el oficio bíblico de **"evangelista"** y lo han aplicado a su rubro, que no tiene nada que ver con la definición *bíblica*. De todas maneras, una persona invitada a predicar, sea un pastor o evangelista (pretendiente o verdadero) sí puede tener autoridad espiritual para hablar la verdad a los salvos. Decir que no sería como un niño rehusando obedecer un adulto porque "no es mi papá/mamá". Ahora bien, Pablo era un "Apóstol" tanto en llamado como oficio (referencias en versículo 5) y escribía bajo la inspiración del Espíritu Santo, pues tenía una responsabilidad y autoridad mucho más allá que cualquier hombre hoy día, pero la regla se establece: Dios puede usar cualquier ministro, hombre, anciano u obispo para hablar a Su iglesia como le plazca a Él, y es la responsabilidad de la iglesia recibir el mensaje y ponerlo en práctica.
 
@@ -130,8 +130,8 @@ Para el creyente, el fruto más importante que cualquier otra cosa es el fruto d
 
 Versículo 7 dice que el libro fue escrito **"a todos los que estáis en Roma"**, incluyendo a los Gentiles perdidos (y por eso pasa tanto tiempo explicando las doctrinas básicas de la salvación), y no sólo a los salvos en las iglesias. Pablo quería guiar algunas almas Romanas al SEÑOR también **(Romanos 15:28)**. Pues, **"como entre los otros Gentiles"** significa la intención de Pablo en ir a Roma: no iba a pasear, si no para cumplir la tarea que Dios le había dado.
 
-Romanos 1:14 **A Griegos y a bárbaros, a sabios y a ignorantes soy deudor.**
-15 **Así que, en cuanto está en mí, pronto estoy a anunciar el evangelio también a los que estáis en Roma.**
+>14 **A Griegos y a bárbaros, a sabios y a ignorantes soy deudor.** {#chapter01verse14}
+15 **Así que, en cuanto está en mí, pronto estoy a anunciar el evangelio también a los que estáis en Roma.** {#chapter01verse15}
 
 Cada salvo tiene una deuda a todo el mundo, para hacerles saber de la salvación. Ya que todos van al infierno por el pecado, al saber que hay un escape, le toca al salvo decirle a los demás que existe una salida. Sería fácil enfocarse en el aspecto humano de eso, sin embargo Dios nos ha mandado ir por todo el mundo y predicar el evangelio. ¿Cómo vamos a cruzar el océano para evangelizar a la gente de otra cultura cuando no estamos dispuestos a cruzar la calle para hablar a nuestros vecinos? Es obvio que somos salvos por la gracia (Efesios 2:8-9), pero en la *práctica* somos salvos **"para buenas obras"** (Efesios 2:10). Es nuestro deber demostrar al mundo la misma misericordia que Dios nos mostró a nosotros.
 
@@ -139,7 +139,7 @@ Cada salvo tiene una deuda a todo el mundo, para hacerles saber de la salvación
 
 Doctrinalmente, es importante acordarse que los primeros salvos de Roma eran prosélitos judíos en Actos 2:10 que solamente oían la predicación de un arrepentimiento nacional por la ejecución del Mesías (Actos 2:14-40), pues la probabilidad es que no tenían una buena base sólida doctrinal en cuanto a la revelación que Dios después dio a la iglesia a través de Pablo (Actos 15:7-11). Por eso Pablo pasa tanto tiempo explicando la realidad de la salvación, que hace al libro de Romanos el tratado doctrinal más importante en la edad de la Iglesia y el punto de partida para el salvo recién nacido de nuevo.
 
-Romanos 1:16 **Porque no me avergüenzo del evangelio de Cristo; porque es poder de Dios para salvación a todo aquel que cree: al Judío primeramente, y también al Griego.**
+>16 **Porque no me avergüenzo del evangelio de Cristo; porque es poder de Dios para salvación a todo aquel que cree: al Judío primeramente, y también al Griego.** {#chapter01verse16}
 
 El salvo nunca debería avergonzarse del evangelio, ya que por él somos salvos. Además, es **"poder de Dios"** y ya que vimos la deuda que todos tenemos, este evangelio no solo da el poder para ser salvo, sino también para llevar el mismo evangelio al mundo. Pues, el salvo no tiene el derecho de avergonzarse de esta realidad tan importante, dicho que le salvó y le dio el poder de cumplir con el mandato divino de serle testigo al SEÑOR Jesu Cristo.
 
@@ -163,7 +163,7 @@ Lo más importante en lo *práctico* aquí es que el evangelio mismo es el poder
 
 La frase **"al Judío primeramente, y también al Griego"** nos pone en complicaciones, si es que somos judaizantes o los herejes de las "raíces hebreas" modernos. Este versículo no trata de una importancia ni prioridad actual, sino el desarrollo histórico del evangelio y la audiencia a que se dirigía. El evangelio fue al judío primero en el libro de Actos, empezando en capítulo 2, hasta capítulo 10 cuando se salvó el primer Gentil. Por todo el libro de Actos, a pesar de que su ministerio era a los Gentiles, Pablo seguía yendo a las sinagogas al llegar a una nueva ciudad (Actos 9:20; 13:5, 14-15; 14:1; 17:1; 18:4, 19; 19:8; 28:17-20). Pues, en el ministerio personal de Pablo, los judíos eran primeros como parte de su práctica, pero la verdad histórica/doctrinal acá es el modo en que el evangelio iba creciendo, con los judíos primeramente, pero por el fin de su ministerio, casi enteramente enfocado en los Gentiles.
 
-Romanos 1:17 **Porque en él la justicia de Dios se descubre de fe en fe, como está escrito: El justo vivirá por la fe.**
+>17 **Porque en él la justicia de Dios se descubre de fe en fe, como está escrito: El justo vivirá por la fe.** {#chapter01verse17}
 
 En este versículo llegamos al colmo, ya que empezando en versículo 18 las cosas van "cuesta abajo". Todo lo bueno y benigno de Dios se ha tratado ya, pero ahora la maldad del hombre se va a demostrar como opuesto y contrario a Dios.
 
@@ -179,7 +179,7 @@ El lector no debe ignorar (**"no seáis ignorantes"**) el hecho *bíblico* de qu
 
 La vida del creyente salvo se prosigue mediante la misma fe salvadora del SEÑOR Jesu Cristo, a fin de que seamos como el SEÑOR Jesu Cristo (**8:29**; Efesios 1:12-14). El fin de la salvación no es que tu almasea rescatada, si no para que el SEÑOR Jesu Cristo sea alabado. *No importas tanto.* 2 Corintios 4:18 y 5:7 nos indican la manera *práctica* de la vida del salvo: por la fe (Gálatas 3:1-3). Las obras buenas son el *fruto* de andar en el Espíritu. Dios comenzó la obra salvadora, y Él la perfeccionará (Filipenses 1:6).
 
-Romanos 1:18 ¶ **Porque se manifiesta la ira de Dios desde el cielo contra toda impiedad e injusticia de los hombres, que detienen la verdad con injusticia:**
+>18 ¶ **Porque se manifiesta la ira de Dios desde el cielo contra toda impiedad e injusticia de los hombres, que detienen la verdad con injusticia:** {#chapter01verse18}
 
 La marca "¶" indica el comienzo de un nuevo párrafo. Desde Génesis 1:14 hasta Hebreos 11:13 (no obstante la posdata de Hebreos) en la Biblia *española*, se utilizan estas maracas para indicar los párrafos. Aveces el entendimiento del contexto es ayudado por el uso de las marcas. Ya que creemos la inspiración de las Escrituras, damos por hecho que estas marcas son parte de la estructura que Dios nos dio para ayudar nuestro entendimiento de las Escrituras.
 
@@ -189,8 +189,8 @@ Tito 2:11 nos dice que todos los hombres han recibido una manifestación de la g
 
 **"detienen la verdad con injusticia"** son los que no reciben la verdad (Efesios 4:21). Debido a que la palabra de Dios es la verdad (Juan 17:17), los que rechazan la Biblia rechazan a Dios Mismo y Su testimonio (Juan 8:18), y Le hacen mentiroso (1 Juan 5:10). 2Tes 2:11-12
 
-Romanos 1:19 **Porque lo que de Dios se puede conocer, en ellos es manifiesto; porque Dios se lo ha manifestado.**
-20 **Porque las cosas invisibles de él, entendidas son desde la creación del mundo, por medio de las cosas que son hechas, se ven claramente, *es a saber*, su eterno poder y divinidad, para que queden sin excusa.**
+>19 **Porque lo que de Dios se puede conocer, en ellos es manifiesto; porque Dios se lo ha manifestado.** {#chapter01verse19}
+20 **Porque las cosas invisibles de él, entendidas son desde la creación del mundo, por medio de las cosas que son hechas, se ven claramente, *es a saber*, su eterno poder y divinidad, para que queden sin excusa.** {#chapter01verse20}
 
 Dios se ha revelado a través de Su creación visible, tanto en lo grande como en lo muy pequeño (Hebreos 11:3). Su creación nos demuestra Su poder, majestad y relación con Su creación tanto en los seres humanos como los otros elementos de la creación, dejando que cada individuo es **"claramente"** responsible delante de Él (Juan 1:9; Salmo 19:1-3; Actos 14:17; **Romanos 2:14-15**). Esa responsabilidad se atribuye a la conciencia, el conocimiento de bien y de mal que Dios da a cada persona a fin de llevarle a Él.
 
@@ -206,13 +206,13 @@ La palabra **"divinidad"** aparece 3 veces en la Biblia: aquí, Actos 17:29, y C
 
 Por lo tanto, resulta que los hombres **"queden sin excusa"** ya que rechazaron la opción de la salvación y optaron por la condenación eterna, a base de su desobediencia individuo al evangelio (**3:4**). Al final, Dios da al hombre lo que el hombre quiere, es decir la opción de rechazarlo a Dios. Esta es la manera de Dios en tratar con el hombre, y así ha sido desde el principio: Dios le da al hombre lo que el hombre quiere. Casi siempre resulta ser la cosa equivocada, pero es lo que quiere. Los muy pocos que quieren y aman la verdad (2 Tesalonicenses 2:10) son los que reciben la salvación por parte de Dios.
 
-Romanos 1:21 **Porque habiendo conocido a Dios, no *le* glorificaron como a Dios, ni *le* dieron gracias: antes se desvanecieron en sus discursos, y el tonto corazón de ellos fue entenebrecido:**
-22 ***Que*** **diciéndose ser sabios, fueron hechos insensatos;**
-23 **Y trocaron la gloria del Dios incorruptible en semejanza de imagen de hombre corruptible, y de aves, y de animales de cuatro pies, y de reptiles.**
-24 **Por lo cual Dios también los entregó a la inmundicia, según las concupiscencias de sus corazones, para que deshonrasen sus cuerpos entre sí:**
-25 **Que mudaron la verdad de Dios en mentira, y honraron y sirvieron a la criatura antes que al Creador, el cual es bendito por los siglos. Amén.**
-26 **Por lo cual Dios los entregó a afectos vergonzosos; porque aun sus mujeres mudaron el natural uso, en el uso que es contra naturaleza.**
-27 **Y asimismo, los varones, dejado el uso natural de la mujer, se encendieron en sus concupiscencias los unos con los otros, cometiendo torpezas varones con varones, y recibiendo en sí mismos la recompensa de su error que convino.**
+>21 **Porque habiendo conocido a Dios, no *le* glorificaron como a Dios, ni *le* dieron gracias: antes se desvanecieron en sus discursos, y el tonto corazón de ellos fue entenebrecido:** {#chapter01verse21}
+22 ***Que*** **diciéndose ser sabios, fueron hechos insensatos;** {#chapter01verse22}
+23 **Y trocaron la gloria del Dios incorruptible en semejanza de imagen de hombre corruptible, y de aves, y de animales de cuatro pies, y de reptiles.** {#chapter01verse23}
+24 **Por lo cual Dios también los entregó a la inmundicia, según las concupiscencias de sus corazones, para que deshonrasen sus cuerpos entre sí:** {#chapter01verse24}
+25 **Que mudaron la verdad de Dios en mentira, y honraron y sirvieron a la criatura antes que al Creador, el cual es bendito por los siglos. Amén.** {#chapter01verse25}
+26 **Por lo cual Dios los entregó a afectos vergonzosos; porque aun sus mujeres mudaron el natural uso, en el uso que es contra naturaleza.** {#chapter01verse26}
+27 **Y asimismo, los varones, dejado el uso natural de la mujer, se encendieron en sus concupiscencias los unos con los otros, cometiendo torpezas varones con varones, y recibiendo en sí mismos la recompensa de su error que convino.** {#chapter01verse27}
 
 Aquí empieza el proceso de la apostasía (degeneración) de los gentiles y de todos los seres humanos, **"habiendo conocido a Dios"**, el resultado del rechazo de Dios. "Luz rechazada se convierta en relámpago." Toda apostasía empieza así y sigue esta pauta.
 
@@ -234,7 +234,7 @@ Versículo **26** es el único lugar donde la Biblia habla abiertamente del lesb
 
 También esta realidad tiene su homólogo en la historia de la iglesia; como descrito en detalle por el Dr. Ruckman, "el ciclo" de la apostasía sigue de otra forma pero paralelo a este descenso.[^2] Lo que resulta es simplemente una variación de lo que era la "sopa primordial" de la cual salieron los "reformadores". El problema de siempre es que el ciclo empieza con *el hombre*.
 
-Romanos 1:28 **Y como a ellos no les pareció bien tener a Dios en su conocimiento, Dios *también* los entregó a un perverso entendimiento, para que hiciesen lo que no conviene;**
+>28 **Y como a ellos no les pareció bien tener a Dios en su conocimiento, Dios *también* los entregó a un perverso entendimiento, para que hiciesen lo que no conviene;** {#chapter01verse28}
 
 Dios sí estaba en el conocimiento de ellos, y no existe ni una excusa. Ni existe ningún ateo: son mentirosos (Jeremías 9:6; Isaías 30:9-11; Job 21:14-15).
 
@@ -250,10 +250,10 @@ Nótese las tres veces que este pasaje dice que Dios los entregó:
 
 Hay una digresión marcada acá, del pecado y rechazo de Dios, a través de la perversión sexual, finalmente a una mente (entendimiento) que ha rechazado a Dios.
 
-\[FALTA ARREGLAR\] Romanos 1:29 **Atestados de toda iniquidad, de fornicación, de malicia, de avaricia, de maldad: llenos de envidia, de homicidios, de contiendas, de engaños, de malignidades:**
-30 **Murmuradores, detractores, aborrecedores de Dios, injuriosos, soberbios, altivos, inventores de males, desobedientes a sus padres,**
-31 **Insensatos, desleales, sin afecto natural, implacables, sin misericordia:**
-32 **Los cuales, entendiendo la justicia de Dios, a *saber*, que los que hacen tales cosas son dignos de muerte; no solamente las hacen, mas aun se complacen con los que las hacen.**
+\[FALTA ARREGLAR\] Romanos 1:29 **Atestados de toda iniquidad, de fornicación, de malicia, de avaricia, de maldad: llenos de envidia, de homicidios, de contiendas, de engaños, de malignidades:** {#chapter01verse29}
+30 **Murmuradores, detractores, aborrecedores de Dios, injuriosos, soberbios, altivos, inventores de males, desobedientes a sus padres,** {#chapter01verse30}
+31 **Insensatos, desleales, sin afecto natural, implacables, sin misericordia:** {#chapter01verse31}
+32 **Los cuales, entendiendo la justicia de Dios, a *saber*, que los que hacen tales cosas son dignos de muerte; no solamente las hacen, mas aun se complacen con los que las hacen.** {#chapter01verse32}
 
 La Biblia no deja ningún escondrijo para nadie. De todos modos, cada ser humano que ha existido cae en más que uno de estos pecados. Peor encima, como termina el pasaje, no es solamente hacer estos pecados, sino también *complacer* con los que hacen estas cosas.
 

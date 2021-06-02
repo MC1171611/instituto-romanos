@@ -10,13 +10,13 @@ Sigue directamente de 5:20-21. Ya que la gracia abunde por el pecado, ¿no serí
 
 >2 **En ninguna manera. Porque los que somos muertos al pecado, ¿cómo viviremos aun en él?** {#chapter06verse02}
 
-¡NO! El andar versus lo espiritual; **"en ninguna manera"** significa ningún pecado, jamás, después de la salvación, ni una vez es aceptable bajo ninguna circunstancia cualquiera en la vida del creyente. **"muertos al pecado"** el creyente NO puede vivir espiritualmente en pecado. Filipenses 2:12-13.
+¡NO! El andar versus lo espiritual; **"en ninguna manera"** significa ningún pecado, jamás, después de la salvación, ni una vez es aceptable bajo ninguna circunstancia cualquiera en la vida del creyente. Si somos **"muertos al pecado"** el creyente NO puede vivir espiritualmente en pecado (Filipenses 2:12-13).
 
 >3 **¿O no sabéis que todos los que somos bautizados en Cristo Jesús, somos bautizados en su muerte?** {#chapter06verse03}
 
 Este bautismo sin cualquier lugar a duda es *espiritual*. La responsabilidad de la salvación ahora es que si eres salvo, tienes que portarte como salvo, ya que somos parte de Su muerte, sepultura y resurrección. La palabra **"bautizados"** no tiene nada que ver con agua; no aparece en este capítulo y ni aparece en este *libro*. Volvamos a repitir: es un bautismo *espiritual* y no físico. (1 Corintios 12:13; Gálatas 3:21-27 {*ser* versus *estar*}; Romanos 13:14; Colosenses 2:9-14).
 
-Nótese el uso del modo en estos versículos: el indicativo y el verbo *ser* tiene que ver con lo espiritual, eterno y ya hecho, mientras el imperativo y subjuntivo y el verbo *estar* trata del *andar* del salvo en el alma más que su salvación eterna. Es una realidad tanto doctrinal como práctica que nos ayuda a encontrar la voluntad de Dios a través de las Escrituras, especialmente las de Pablo. Todo esto tiene que ver con la muerte de Cristo (2 Corintios 5:17) y ser *en Él* (Filipenses 3:9; Colosenses 2:6-7).
+Nótese el uso del modo en estos versículos: el indicativo y el verbo *ser* tiene que ver con lo espiritual, eterno y ya hecho, mientras el imperativo y subjuntivo junto con el verbo *estar* tratan del *andar* del salvo en el alma más que su salvación eterna. Es una realidad tanto doctrinal como práctica que nos ayuda a encontrar la voluntad de Dios a través de las Escrituras, especialmente las de Pablo. Todo esto tiene que ver con la muerte de Cristo (1 Corintios 15:22; 2 Corintios 5:17) y ser *en Él* (Filipenses 3:9; Colosenses 2:6-7).
 
 >4 **Porque somos sepultados *juntamente* con él en la muerte por el bautismo, para que como Cristo resucitó de los muertos por la gloria del Padre, así también nosotros andemos en novedad de vida.** {#chapter06verse04}
 
@@ -40,7 +40,7 @@ La frase **"morimos con Cristo"** habla de la realidad espiritual actual por la 
 >9 **Ciertos que Cristo habiendo resucitado de los muertos, ya no muere: la muerte no se enseñoreará más de él.** {#chapter06verse09}
 10 **Porque, en cuanto al morir, al pecado murió una vez; mas en cuanto al vivir, para Dios vive.** {#chapter06verse10}
 
-Pablo sigue respondiendo a la pregunta plantada en versículo 1: ¿Perseveraremos en el pecado? Ya que Dios es el Dios de los vivos, quiere decir que los que viven por Él también son vivos; en esta época somos hechos partícipes de la vida real, el SEÑOR Jesu Cristo (Hebreos 9:27-28; 10:10-14; Lucas 20:38).
+Pablo sigue respondiendo a la pregunta plantada en versículo 1: ¿Perseveraremos en el pecado? Ya que Dios es el Dios de los vivos, quiere decir que los que viven por Él también son vivos; en esta época somos hechos partícipes de la vida real, el SEÑOR Jesu Cristo (Hebreos 9:27-28; 10:10-14; Marcos 12:27; Lucas 20:38).
 
 >11 **Así también vosotros, juzgád que vosotros de cierto estáis muertos al pecado; mas que vivís para Dios en Cristo Jesús Señor nuestro.** {#chapter06verse11}
 
@@ -50,22 +50,22 @@ Romanos 13:14, el nuevo Hombre es Cristo; Colosenses 3:1-5; 2 Corintios 5:14-14;
 
 >12 **No reine pues el pecado en vuestro cuerpo mortal, para que le obedezcáis en sus concupiscencias.** {#chapter06verse12}
 
-**"no reine pues"** otra vez con el subjuntivo; es la obligación y mandato de Dios que no dejemos al pecado reinar en nuestros corazones.
+**"no reine pues"** otra vez con el subjuntivo; es la obligación y mandato de Dios que no dejemos al pecado reinar en nuestros corazones (Romanos 5:14, 17, 21 con 6:16-17).
 
 >13 **Ni tampoco presentéis vuestros miembros al pecado *como* instrumentos de iniquidad: antes presentáos a Dios como vivientes de *entre* los muertos; y vuestros miembros a Dios *como* instrumentos de justicia.** {#chapter06verse13}
 
 Nótese la aplicación dual de la palabra **"miembros"** en este versículo:
 
-1. Miembros espirituales en el cuerpo de Cristo - Romanos 12:5l 1 Corintios 12:12, 27; Efesios 4:25; 5:30
-2. Miembros físicos del cuerpo del creyente, el viejo hombre, el vaso que se debe presentar a Dios (y que se puede presentar al pecado también) - Romanos 12:4 (con 1 Corintios 12:12); 1 Corintios 6:15-16
+1. Miembros espirituales en el cuerpo de Cristo - Romanos 12:5 1 Corintios 12:12, 27; Efesios 4:25; 5:30
+2. Miembros físicos del cuerpo del creyente, el viejo hombre, el vaso que se debe presentar a Dios (y que se puede presentar al pecado también) - Romanos 12:4 (con 1 Corintios 12:12); 1 Corintios 6:15-16; 2 Timoteo 2:19-21.
 
-La presentación en Romanos 12:1; subjuntivo otra vez. Romanos 6:19, uso de "presentasteis" (tiempo Aoristo, modo Indicativo, voz Activa) y luego "presentéis" (tiempo presente, modo *Subjuntivo*, voz Activa).
+"**Presentéis**" en Romanos 12:1; subjuntivo otra vez. Romanos 6:19, uso de "presentasteis" (tiempo Aoristo, modo Indicativo, voz Activa) y luego "presentéis" (tiempo presente, modo *Subjuntivo*, voz Activa, que constituye el imperativo negativo en castellano; es el imperativo en Griego).
 
-No es por fuerza, tiene que ser de voluntad propia, por presentarse a Cristo, y el Él llevamos fruto (Juan 15).
+No es por fuerza, tiene que ser de voluntad propia, por presentarse a Cristo, y el Él llevamos fruto (Juan 15). Él nos da la opción.
 
 >14 **Porque el pecado no se enseñoreará de vosotros; porque no estáis debajo de la ley, sino debajo de la gracia.** {#chapter06verse14}
 
-Toda denominación religiosa que enseña los 10 Mandamientos como regla para hoy caben en este versículo: *son del demonio*. **"no se enseñoreará"** identificado y doctrinalmente establecido para el creyente neotestamentario (Gálatas 4:7).
+Toda denominación religiosa que enseña los 10 Mandamientos como regla para hoy caben en este versículo: *son del demonio*. **"no se enseñoreará"** identificado y doctrinalmente establecido para el creyente neotestamentario (Gálatas 4:7). No estamos debajo de la potestad del pecado o la ley, pues debemos de vivir de acuerdo con esa libertad para servir a Dios.
 
 **"la ley"** ninguna, ni la ley de la conciencia (C. 1) ni la ley de Moisés (C. 2), no para el gentil ni para el judío. Como Romanos 7:4 habla de la potestad del marido (el pecado/la ley), versículo 6 dice **"sirvamos"** (subjuntivo), 8:2, somos libres de la ley para servir a Cristo en lugar del pecado Y la ley de Moisés.
 
@@ -73,23 +73,23 @@ Gálatas 5:18; libertad de la ley no es licencia para pecar; Gálatas 5:1, 13.
 
 >15 **¶ ¿Pues qué? ¿Pecaremos, porque no estamos debajo de la ley, sino debajo de la gracia? En ninguna manera.** {#chapter06verse15}
 
-El contexto específico es creyentes salvos. v. 1, ¡no pequemos! Romanos 3:8; estamos muertos al pecado (v. 2, 6, 15). 2 Corintios 7:1.
+El contexto específico es creyentes salvos. v. 1, ¡no pequemos! Romanos 3:8; estamos muertos al pecado (v. 2, 6, 15). 2 Corintios 7:1. (3:4, μἠ γένοιτο, modo optitavo griego, "En ninguna manera", "que no sea así", "que nunca pase", etc.)
 
 >16 **¿O no sabéis, que a quien os presentasteis vosotros mismos por siervos para obedecer*le*, sois siervos de aquel a quien obedecéis, o del pecado para muerte, o de la obediencia para justicia?** {#chapter06verse16}
 
-Personas salvas, salvación pasada (hecha). Puede ser salvo sin servir a Dios; Juan 8:34-36; libertad presente y continua. **"creer"** en Él no es el mismo que **"permanecer"** en Él, servirle. **"habían creído"** pasado, espiritual; **"permaneciereis"** presente, alma; **"seréis"** futuro, cuerpo, redención/adopción.
+Hablando a personas salvas, la salvación pasada espiritual (ya hecha). Puede ser salvo sin servir a Dios (el andar); Juan 8:31-36; libertad presente y continua (en el alma). **"creer"** en Él no es el mismo que **"permanecer"** en Él, servirle. **"habían creído"** pasado, espiritual; **"permaneciereis"** presente, alma; **"seréis"** futuro, cuerpo, redención/adopción.
 
 >17 **Gracias a Dios, que fuisteis siervos del pecado; mas habéis obedecido de corazón a la forma de doctrina a la cual habéis sido entregados:** {#chapter06verse17}
 
-Romanos 10:9-10; **"obedecer el evangelio"**; Colosenses 3:23; Efesios 6:5.
+Romanos 10:9-10; **"obedecer el evangelio"**; Colosenses 3:23; Efesios 6:5-8.
 
 >18 **Y libertados del pecado, sois hechos siervos de la justicia.** {#chapter06verse18}
 
-**"sois hechos sirvos"** no significa que estamos sirviendo; puede haber una diferencia entre el *ser* y el *hacer* ("Entre el dicho y el hecho hay un gran trecho", etc.). Efesios 2:10 somos **"hechos"** para buenas obras, pero tenemos que actuar de acuerdo para no ser **"mal siervo[s]"**. Tengo que *hacer* lo que *soy*; andar como corresponde; llevar fruto.
+**"sois hechos sirvos"** no significa que estamos sirviendo; puede haber una diferencia entre el *ser* y el *hacer* ("Entre el dicho y el hecho hay un gran trecho", etc.). Efesios 2:10 somos **"hechos"** para buenas obras, pero tenemos que actuar de acuerdo para no ser **"mal siervo[s]"**. Tengo que *hacer* lo que *soy*; andar como corresponde; llevar fruto (Lucas 17:10; Juan 15:1-10).
 
 >19 **Hablo humanamente a causa de la flaqueza de vuestra carne: que como presentasteis vuestros miembros por siervos de la inmundicia y de la iniquidad para iniquidad; así ahora presentéis vuestros miembros por siervos de la justicia para santidad.** {#chapter06verse19}
 
-Con v. 13; **"presentasteis"** a pecado, a los perdidos les gusta pecar. A la carne le gusta pecar igual, por eso no podemos andar en la carne (Gálatas 5:16). **"presentéis"** subjuntivo, hacer real en la práctica lo que Dios ya hizo en el espíritu eternamente.
+Vuelve a explicar con mayor claridad por la carnalidad de los recipientes: con v. 13; **"presentasteis"** a pecado, a los perdidos les gusta pecar. A la carne le gusta pecar igual, por eso no podemos andar en la carne (Gálatas 5:16). **"presentéis"** subjuntivo, hacer real en la práctica lo que Dios ya hizo en el espíritu eternamente.
 
 >20 **Porque cuando fuisteis siervos del pecado, libres eráis de la justicia.** {#chapter06verse20}
 21 **¿Qué fruto teníais entonces de aquellas cosas, de las cuales ahora os avergonzáis? porque el fin de ellas *es* la muerte.** {#chapter06verse21}
@@ -114,12 +114,12 @@ También corresponde a:
 
 | <span style="color:red">La Vida Eterna</span>|<span style="color:green">La Vida Eterna</span>|<span style="color:blue">La Vida Eterna</span>|
 |:-------------------:|:-----------------------:|:----------------------------:|
-|<span style="color:red">???</span>| <span style="color:green">1 Timoteo 6:12</span> |<span style="color:blue">???</span>|
+|<span style="color:red">Juan 3:15, 36; 10:28; la salvación pasada</span>| <span style="color:green">1 Timoteo 6:12, 19; la pelea actual</span> |<span style="color:blue">Juan 12:25; Gálatas 6:8; Tito 1:2; la redención de nuestros cuerpos en el arrebatamiento</span>|
 
 Perspectivo del pecado y el creyente, con un alcance amplio.
 - Juan 10:10 - presente
 - 1 Corintios 11:30 - puede morir físicamente por pecar
-- sufrir pérdida - muerte de galardones en el tribunal de Cristo
+- 1 Corintios 3:15 - sufrir pérdida, muerte de galardones en el tribunal de Cristo
 - Revelación 20:14 - Segunda muerte para los perdidos, espiritual y física
 - Juan 8:24 - muerte espiritual
 
@@ -128,4 +128,4 @@ También hay muerte almática para considerar:
 2. llevar fruto - árbol maldito que no produce vida (vida en su simiente, fruto; Génesis 1:11-12); Marcos 4:18-19; Gálatas 5:16-23, 24-25; 1 Timoteo 5:6.
 3. Hasta matarle por pecado - 1 Corintios 5:5; 11:30; 1 Juan 5:16.
 
-**"vida eterna"** - somos, seremos y también estamos salvos ahora. La viuda moza está muerta y no produce fruto si no vive en delicias (una muerte viva). Jeremías 21:8; Hebreos 9:27-28; Juan 3:18, 36; 1 Juan 5:12; 1 Timoteo 6:12, vivirla *ahora*; *andad* como hijos de luz. Romanos 6:2, 21.
+**"vida eterna"** - <span style="color:red">somos</span>, <span style="color:blue">seremos</span> y también <span style="color:green">estamos</span> salvos ahora. La viuda moza está muerta y no produce fruto si no vive en delicias (una muerte viva). Jeremías 21:8; Hebreos 9:27-28; Juan 3:18, 36; 1 Juan 5:12; 1 Timoteo 6:12, vivirla *ahora*; *andad* como hijos de luz. Romanos 6:2, 21.
