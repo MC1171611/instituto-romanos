@@ -14,7 +14,7 @@ Sigue directamente de 5:20-21. Ya que la gracia abunde por el pecado, ¿no serí
 
 >3 **¿O no sabéis que todos los que somos bautizados en Cristo Jesús, somos bautizados en su muerte?** {#chapter06verse03}
 
-Este bautismo sin cualquier lugar a duda es *espiritual*. La responsabilidad de la salvación ahora es que si eres salvo, tienes que portarte como salvo, ya que somos parte de Su muerte, sepultura y resurrección. La palabra **"bautizados"** no tiene nada que ver con agua; no aparece en este capítulo y ni aparece en este *libro*. Volvamos a repitir: es un bautismo *espiritual* y no físico. (1 Corintios 12:13; Gálatas 3:21-27 {*ser* versus *estar*}; Romanos 13:14; Colosenses 2:9-14).
+Este bautismo sin cualquier lugar a duda es *espiritual*. La responsabilidad de la salvación ahora es que si eres salvo, tienes que portarte como salvo, ya que somos parte de Su muerte, sepultura y resurrección. La palabra **"bautizados"** no tiene nada que ver con agua; no aparece en este capítulo y ni aparece en este *libro*. Volvamos a repetir: es un bautismo *espiritual* y no físico. (1 Corintios 12:13; Gálatas 3:21-27 {*ser* versus *estar*}; Romanos 13:14; Colosenses 2:9-14).
 
 Nótese el uso del modo en estos versículos: el indicativo y el verbo *ser* tiene que ver con lo espiritual, eterno y ya hecho, mientras el imperativo y subjuntivo junto con el verbo *estar* tratan del *andar* del salvo en el alma más que su salvación eterna. Es una realidad tanto doctrinal como práctica que nos ayuda a encontrar la voluntad de Dios a través de las Escrituras, especialmente las de Pablo. Todo esto tiene que ver con la muerte de Cristo (1 Corintios 15:22; 2 Corintios 5:17) y ser *en Él* (Filipenses 3:9; Colosenses 2:6-7).
 
@@ -58,6 +58,8 @@ Nótese la aplicación dual de la palabra **"miembros"** en este versículo:
 
 1. Miembros espirituales en el cuerpo de Cristo - Romanos 12:5 1 Corintios 12:12, 27; Efesios 4:25; 5:30
 2. Miembros físicos del cuerpo del creyente, el viejo hombre, el vaso que se debe presentar a Dios (y que se puede presentar al pecado también) - Romanos 12:4 (con 1 Corintios 12:12); 1 Corintios 6:15-16; 2 Timoteo 2:19-21.
+
+El concepto eclesiástico de que un individuo es "miembro" de una iglesia local no entra en este versículo. El cuerpo siempre habla del cuerpo de Cristo que *no* se reduce a una sola iglesia local ni una agrupación de iglesias (la "novia bautista" por ejemplo). Entonces los "miembros" son partes del cuerpo de *Cristo*, no de una iglesia local. Aunque debemos de hacernos parte de una iglesia local y hacer lo más que podamos para ayudar la misión de esa iglesia, el fin del asunto es la gloria de Dios y la edificación del cuerpo.
 
 "**Presentéis**" en Romanos 12:1; subjuntivo otra vez. Romanos 6:19, uso de "presentasteis" (tiempo Aoristo, modo Indicativo, voz Activa) y luego "presentéis" (tiempo presente, modo *Subjuntivo*, voz Activa, que constituye el imperativo negativo en castellano; es el imperativo en Griego).
 

@@ -14,17 +14,17 @@ A los hermanos Judíos, C. 2; "**entre tanto que vive?**" está a punto de abarc
 >2 **Porque la mujer que está sujeta a marido, mientras él vive, está ligada a *su* marido por la ley; mas muerto el marido, ella está libre de la ley del marido.** {#chapter07verse02}
 3 **Así que viviendo el marido se llamará adúltera, si fuere de otro varón; mas si su marido hubiese muerto, está libre de la ley, de tal manera que no será adúltera, si fuere de otro marido.** {#chapter07verse03}
 
-"**la ley**" (v. 1, 2, 3) no tiene nada que ver con la doctrina (6:14). De hecho, el "divorcio" *ni se menciona aquí*. Bajo la ley, divorció SÍ existía (Deu. 24:1-4 {1 Cor. 7}; 25:5 {la excepción, Deu. 28:22; Lev. 20:10}, "**otro varón**", no "otro marido/esposo" porque es adulterio, fornicación, juntar dos cosas que no corresponden). Cap. 1-8 se centran en la Salvación, *no* en el matrimonio.
+Esto de "**la ley**" (v. 1, 2, 3) aquí no tiene nada que ver con la doctrina (6:14). De hecho, el "divorcio" *ni se menciona aquí*. Bajo la ley, divorció SÍ existía (Deu. 24:1-4 {1 Cor. 7}; 25:5 {la excepción, Deu. 28:22; Lev. 20:10}, "**otro varón**", no "otro marido/esposo" porque es adulterio, fornicación, juntar dos cosas que no corresponden). Cap. 1-8 se centran en la Salvación, *no* en el matrimonio.
 
 >4 **Así también vosotros, hermanos míos, estáis muertos a la ley por el cuerpo de Cristo, para que seáis de otro esposo, *es a saber*, del que resucitó de los muertos, para que llevemos fruto a Dios.** {#chapter07verse04}
 
-Es un TIPO de como Cristo nos salvó; Él mató al pecado para que fuésemos libres del pecado (Rom. 6:6-7, 22; Gálatas 5:22-23 "**no hay ley**"). Somos "divorciados" legítimamente de nuestro ex-esposo (el pecado) para ser casado con un nuevo marido, Cristo. Fruto en la Biblia es Gal. 5:22-23; "almas" como fruto (Pro. 11:30) es una aplicación secundaria. (Efesios 4:16) Hebreos 2:10-13
+Es un TIPO de como Cristo nos salvó; Él mató al pecado para que fuésemos libres del pecado (Rom. 6:6-7, 22; Gálatas 5:22-23 "**no hay ley**"). Somos "divorciados" legítimamente de nuestro ex-esposo (el pecado) para ser casado con un nuevo marido, Cristo. Fruto en la Biblia es Gálatas 5:22-23; "almas" como fruto (Proverbios 11:30) es una aplicación secundaria. (Efesios 4:16) Hebreos 2:10-13
 
 >5 **Porque mientras estábamos en la carne, los afectos del pecado que eran por la ley, obraban en nuestros miembros para llevar fruto a la muerte:** {#chapter07verse05}
 
 "**estábamos en la carne**" 8:8-9; 2 Corintios 10:3; se refiere a antes de ser salvos. Los afectos eran "**pecado...por la ley**", fruto para la muerte (6:21).
 
-Según vs. 7-8 el pecado todavía obra en nuestros cuerpos (7:23), en el *hombre salvo.* El viejo hombre, la carne *perdida*, todavía existe, el "yo" del hombre viejo depende de 6:11; 7:24: la determinación propia del salvo (Gál. 5:16)
+Según vs. 7-8 el pecado todavía obra en nuestros cuerpos (7:23), en el *hombre salvo.* El viejo hombre, la carne *perdida*, todavía existe, el "yo" del hombre viejo depende de 6:11; 7:24: la determinación propia del salvo (Gálatas 5:16)
 
 >6 **Mas ahora estamos libres de la ley, habiendo muerto a aquello en que nos detenía presos, para que sirvamos en novedad de espíritu, y no *en* vejez de la letra.** {#chapter07verse06}
 
@@ -36,9 +36,9 @@ Según vs. 7-8 el pecado todavía obra en nuestros cuerpos (7:23), en el *hombre
 
 Pecado es un asalto contra el ser de Dios; Quién ES y cómo ES: Santo, Santo, Santo. Es una ofensa contra Su santidad.
 
-"**¿La ley *es* pecado?**" v. 12-13; no. v. 14, es espiritual. Cita la Ley, 13:9 (Lev. 19:18); Efesios 6:2; no por la salvación, práctica.
+"**¿La ley *es* pecado?**" v. 12-13; no. v. 14, es espiritual. Cita la Ley, 13:9 (Levítico 19:18); Efesios 6:2; no por la salvación, práctica.
 
-"**no conociera al pecado**" a menos que hubo la ley, no se revela el pecado. Rom 8:3; lo que ES, no lo que hace; Necesita una intervención divina (Gál. 3:24 - débil por la carne).
+"**no conociera al pecado**" a menos que hubo la ley, no se revela el pecado. Rom 8:3; lo que ES, no lo que hace; Necesita una intervención divina (Gálatas 3:24 - débil por la carne).
 
 >8 **Empero el pecado, tomando ocasión por el mandamiento, obró en mí toda suerte de concupiscencia; porque sin la ley el pecado *estaba* muerto.** {#chapter07verse08}
 
@@ -56,11 +56,11 @@ Como vimos en capítulos 1-2, la conciencia del pecado en el gentil corresponde 
 
 >10 **Y hallé *que* el mandamiento, que *de suyo era* para vida, a *mí era* para muerte.** {#chapter07verse10}
 
-Lev. 18:5; Romanos 10:5- vivirá por tales cosas. La Ley es para vida; el problema es que el hombre no cumple la ley.
+Levítico 18:5; Romanos 10:5- vivirá por tales cosas. La Ley es para vida; el problema es que el hombre no cumple la ley.
 
 >11 **Porque el pecado, tomando ocasión por el mandamiento, me engañó, y por él *me* mató.** {#chapter07verse11}
 
-vs. 8-11 es Génesis 3 en acción (Gén. 2:16-17) para vida (2 Cor. 11:3); Satanás (el hombre de pecado) se puede decir es el pecado personificado (como Cristo es la Vida).
+vs. 8-11 es Génesis 3 en acción (Génesis 2:16-17) para vida (2 Corintios 11:3); Satanás (el hombre de pecado) se puede decir es el pecado personificado (como Cristo es la Vida).
 
 >12 **De manera que la ley a la verdad *es* santa, y el mandamiento santo, y justo, y bueno.** {#chapter07verse12}
 
@@ -74,13 +74,13 @@ Resumen de 7-12; hace obvio como malo es el pecado, "**sobre manera pecaminoso**
 
 Desde aquí hasta el fin del capítulo, el Espíritu Santo a través de Pablo nos da la cátedra acerca de lo que podemos llamar "la esquizofrenia cristiana", la situación en que se encuentra cada salvo ahora que vive en un cuerpo pecaminoso mientras tiene un espíritu vivificado para con Dios. Estas dos naturalezas estarán con él hasta el día de su muerte.
 
-"**la ley es espiritual**" como el Dios que dio la ley (Juan 4:24); el hombre interior (1 Pedro 3:4) es espiritual (1 Cor. 2:10-15; 15:45-47); el hombre perdido NO es de Dios ni es espiritual.
+"**la ley es espiritual**" como el Dios que dio la ley (Juan 4:24); el hombre interior (1 Pedro 3:4) es espiritual (1 Corintios 2:10-15; 15:45-47); el hombre perdido NO es de Dios ni es espiritual.
 
 "**yo soy carnal, vendido debajo del pecado**" Gálatas 2:20; Mateo 16:25. "Mi vida" es una basura, no vale nada. Tengo que perder "mi vida" para tener la vida verdadera, la de Dios en Cristo.
 
 >15 **Porque lo que hago, no *lo* apruebo, pues el *bien* que quiero, no hago; antes lo que aborrezco, aquello hago.** {#chapter07verse15}
 
-Aquí vemos los dos hombres en combate: el que habla es obviamente el hombre nuevo pero quejándose del hombre viejo, la carne que actúa sin consentimiento del hombre nuevo. (Gálatas 5:16-18 {el problema}, 19-21 {el hombre viejo}, 22-23{el hombre nuevo}; Romano 8:14 {el hombre viejo no es hijo de Dios, por eso espera la redención/adopción, Rom. 8:15, 23}).
+Aquí vemos los dos hombres en combate: el que habla es obviamente el hombre nuevo pero quejándose del hombre viejo, la carne que actúa sin consentimiento del hombre nuevo. (Gálatas 5:16-18 {el problema}, 19-21 {el hombre viejo}, 22-23{el hombre nuevo}; Romanos 8:14 {el hombre viejo no es hijo de Dios, por eso espera la redención/adopción, Romanos 8:15, 23}).
 
 >16 **Y si lo que no quiero, esto hago, consiento que la ley es buena.** {#chapter07verse16}
 
@@ -102,7 +102,7 @@ Aquí están las dos naturalezas. Otra vez el que está actuando aquí es el hom
 
 (v. 17 repetido); "**dos o tres testigos**", repetición para establecer la doctrina y práctica.
 
-21 **Así que, *en* queriendo yo hacer el bien, hallo *esta* ley; que el mal habita conmigo.** {#chapter07verse21}
+>21 **Así que, *en* queriendo yo hacer el bien, hallo *esta* ley; que el mal habita conmigo.** {#chapter07verse21}
 22 **Porque según el hombre interior me deleito en la ley de Dios;** {#chapter07verse22}
 23 **Mas veo otra ley en mis miembros rebelándose contra la ley de mi espíritu, y llevándome cautivo a la ley del pecado que está en mis miembros.** {#chapter07verse23}
 
@@ -112,7 +112,7 @@ Aquí están las dos naturalezas. Otra vez el que está actuando aquí es el hom
 2. Ley de Dios -> ley de mi espíritu ("**la ley de Dios**"; "**ley de mi espíritu**")
 3. ley del pecado -> la batalla entre el espíritu y la carne ("**el mal**"; "**ley del pecado**"; "**otra ley**")
 
-24 **¡Miserable hombre de mí! ¿quién me librará del cuerpo de esta muerte?** {#chapter07verse24}
+>24 **¡Miserable hombre de mí! ¿quién me librará del cuerpo de esta muerte?** {#chapter07verse24}
 25 **Gracias doy a Dios por Jesu Cristo Señor nuestro. Así que, yo mismo con el espíritu sirvo a la ley de Dios, mas con la carne a la ley del pecado.** {#chapter07verse25}
 
-Las dos naturalezas en resumen. "**¡Miserable hombre de mí!**" el gimido del salvo espiritual, preso en la carne, condenado a luchar con el pecado mientras vive. Condenarse a sí mismo es justificar a Dios ( Job 40:8; Romanos 8:22-33; 2 Cor. 5:1-4; echa mano ahora -> Fil. 3:20-21). 
+Las dos naturalezas en resumen. "**¡Miserable hombre de mí!**" el gemido del salvo espiritual, preso en la carne, condenado a luchar con el pecado mientras vive. Condenarse a sí mismo es justificar a Dios ( Job 40:8; Romanos 8:22-33; 2 Corintios 5:1-4; echa mano ahora -> Filipenses 3:20-21). 
