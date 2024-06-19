@@ -47,7 +47,7 @@ La **"recompensa"** pues sí hay un pago necesario (3:23), como figura financiar
 8 **Bienaventurado el varón al cual el Señor no imputará pecado.** {#chapter04verse08}
 (Cita Salmo 32:1-2)
 
-Aplicación profética una muestra de la gracia y misericordia de Dios, 2 Samuel 12:13, **"trasportado"** pero *no quitado*. Era una dispensación especial, Isaías 55:2, seguridad eterna prometida a David, reconoció su pecado *contra Dios*. Números 23:21, pero aplicada a la nación entera (?).
+Aplicación profética una muestra de la gracia y misericordia de Dios, 2 Samuel 12:13, **"trasportado"** pero *no quitado*. Era una dispensación especial, Isaías 55:1-3, seguridad eterna prometida a David, reconoció su pecado *contra Dios*. Números 23:21, pero aplicada a la nación entera (?).
 
 >9 **¿Esta bienaventuranza pues viene solamente sobre la circuncisión, o también sobre la incircuncisión? porque decimos que a Abraham fue contada la fe por justicia.** {#chapter04verse09}
 (Cita Génesis 15:6)
@@ -85,19 +85,21 @@ Gálatas 3:8-9 (Génesis 17; 22), vs. 16-18. Abraham en su fe hacia Dios, pero c
 
 Creer en lo que Dios dice solamente. Proverbios 3:5, Dios hará posible lo imposible, como lograr (recibir) la justicia de Cristo.
 
+"**llama las cosas que no son**" mirando a algo que todavía no existe; Génesis 50:25; Hebreos 11:22; Lucas 2:25-38; 24:13-27.
+
 >19 **Y no siendo débil en fe, no consideró su cuerpo ya muerto, (siendo ya de casi cien años,) ni la matriz muerta de Sara.** {#chapter04verse19}
 
-**"muerto"** muertes, usos distintos: muerto en respeto al propósito principal. Génesis 2:17, no murieron en el sentido del diccionario; Romanos 6:11, muertos al pecado; 7:11, el pecado mata al entenderlo; 1 Timoteo 5:6, etc.
+Las palabras **"muerto"** y muertes tienen usos distintos: muerto en respeto al propósito principal. Génesis 2:17, no murieron en el sentido del diccionario; Romanos 6:11, muertos al pecado; 7:11, el pecado mata al entenderlo; 1 Timoteo 5:6, etc. Romanos 6:23.
 
 >20 **Tampoco en la promesa de Dios dudó con desconfianza: antes fue esforzado en fe, dando gloria a Dios:** {#chapter04verse20}
 
-(1:21) **"tampoco dudó"** aunque se rió en sí, pero no le fue imputado; Dios le quitó ese pecado del registro oficial.
+(1:21) **"tampoco dudó"** aunque se rió en sí, pero no le fue imputado; Dios le quitó ese pecado del registro oficial. Génesis 17:17; pero obedeció, v. 23; capítulo 21 lo cumplió. Diso es muy benigno.
 
 >21 **Enteramente persuadido que todo lo que había prometido, era también poderoso para hacerlo.** {#chapter04verse21}
 
 El desarrollo de la fe: proceso de Lucas 17:5 (18-21)
 
-1.  Cree lo que Dios de dijo y espéralo v. 18
+1.  Cree lo que Dios le dijo y espéralo v. 18
 2.  No seas "débil en fe" v. 19
 3.  No consideres las circunstancias que pueden impedir v. 19
 4.  Reclama la promesa y no dudes v. 20
@@ -105,15 +107,15 @@ El desarrollo de la fe: proceso de Lucas 17:5 (18-21)
 6.  Da gloria a Dios *antes* de recibir la promesa v.20
 7.  Sé enteramente persuadido v.21
 
-Dios es poderoso para hacer todo lo que ha prometido.
+Dios es poderoso para hacer todo lo que ha prometido, todo según SU voluntad.
 
 >22 **Y por tanto le fue imputado a justicia.** {#chapter04verse22}
 (Cita Génesis 15:6)
 23 **Y no está escrito esto solamente por causa de él, que le haya sido así contado;** {#chapter04verse23}
 
-Es una figura.
+Es una figura de la fe, escrita por nuestra amonestación y ejemplo (1 Corintios 10:11; Romanos 15:4).
 
 >24 **Sino también por nosotros, a quienes será así contado, a los que creemos en el que levantó de los muertos a Jesús, Señor nuestro:** {#chapter04verse24}
 25 **El cual fue entregado por nuestros delitos, y resucitado para nuestra justificación.** {#chapter04verse25}
 
-Nuestra salvación, 2 Corintios 5:17-21.
+Nuestra salvación, 2 Corintios 5:17-21; alude a Isaías 53; lleva a capítulo 5, que trata de la justificación por la fe. 

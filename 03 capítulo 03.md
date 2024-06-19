@@ -2,7 +2,7 @@
 
 >Romanos 3:1 **¿Qué, pues, tiene más el Judío? ¿o cuál *es* el provecho de la circuncisión?** {#chapter03verse01}
 
-Resulta que el Judío tiene una responsabilidad mayor debido a su mayor revelación mediante la Ley. Recibieron mayores bendiciones; pues, tienen mayores responsabilidades. Efesios 2:12, 19-20 los Judíos tienen todo el beneficio de las grandes bendiciones de parte de Dios. Más provecho, más juicio; se le requiere más.
+Resulta que el Judío tiene una responsabilidad mayor debido a su mayor revelación mediante la Ley. Recibieron mayores bendiciones; pues, tienen mayores responsabilidades. Efesios 2:12, 19-20, los Judíos tienen todo el beneficio de las grandes bendiciones de parte de Dios. Más provecho, más juicio; se le requiere más.
 
 Aquí la **"circuncisión"** no es el procedimiento quirúrgico, si no el grupo de los Israelitas, a los cuales fue dado el concierto señalado por la circuncisión. Gálatas 1-2 indica claramente que no hay necesidad bíblica ahora para la circuncisión física de los niños que nacen hoy en día.
 
